@@ -39,7 +39,7 @@ I believe in combining strong theoretical fundamentals with practical applicatio
 
 ## 🧑‍💼 Leadership & Campus Impact
 
-- 🎤 **Director, IITBHU Model United Nations (MUN)**
+- 🎤 **Director General, IITBHU Model United Nations (MUN)**
 - 🌱 **Co-Head, Wellness Council, IIT (BHU)**
 - 💬 **Public Speaking, Strategic Planning, Teamwork:** Sharpened through leadership roles across campus
 
